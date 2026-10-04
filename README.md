@@ -1,7 +1,7 @@
 ## *𝚑𝚎𝚕𝚕𝚘* *~*
 
 <p align="center">
-  <img src="https://i.imgur.com/p7dda1K.png" width="900" alt="purple aesthetic">
+  <img src="https://i.pximg.net/img-master/img/2026/09/08/03/24/27/149409788_p0_master1200.jpg" width="900" alt="purple aesthetic">
 </p>
 
 ![](https://i.pximg.net/img-master/img/2026/09/08/03/24/27/149409788_p0_master1200.jpg)
